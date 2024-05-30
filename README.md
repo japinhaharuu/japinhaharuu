@@ -10,4 +10,4 @@
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 🍒 🐶
 - Amo aprender coisas novas e criar novos projetos!
  
-- ![](https://media1.tenor.com/m/0xyAhvx2nIwAAAAd/coreaninhas.gif)
+- ![](https://tenor.com/pt-BR/view/yaseen1-gif-25415610)
