@@ -9,4 +9,4 @@
 - Estou aprendendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 🍒 🐶
 - Amo aprender coisas novas e criar novos projetps!
-- ![Alura](https://tenor.com/pt-BR/view/coreaninhas-gif-19356803)
+- ![](https://tenor.com/pt-BR/view/coreaninhas-gif-19356803)
