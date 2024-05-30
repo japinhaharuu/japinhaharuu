@@ -10,4 +10,7 @@
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 🍒 🐶
 - Amo aprender coisas novas e criar novos projetos! 
 
- ![](https://media1.tenor.com/m/YAuVRkCd_3AAAAAd/mayday-korean.gif)
+
+![](https://media1.tenor.com/m/YAuVRkCd_3AAAAAd/mayday-korean.gif)
+
+ ![](https://media1.tenor.com/m/i6YhM1sIuZsAAAAd/glitch.gif)
